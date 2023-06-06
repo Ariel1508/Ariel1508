@@ -4,5 +4,7 @@
 - 📫 How to reach me:
 - Ig: _ariel1508_
 - Hotmail: arielito1508@hotmail.com
+- Gmail: arielcaicedo40@gmail.com
+
 
 
